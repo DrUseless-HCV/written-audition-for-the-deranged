@@ -1,0 +1,1 @@
+Drabble is just to explore an idea, basically. It's the most impulsive of all draft types. I'll get bored of my main drafts, have an idea, write a few paragraphs, and most likely never return to it. It's not easy, the life of a Drabblehead.
